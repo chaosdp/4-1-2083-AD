@@ -74,3 +74,11 @@ how many times
 does he not get it right?
 
 Insane
+
+
+
+
+
+
+
+![image](https://github.com/chaosdp/4-1-2083-AD/assets/123339503/c5312611-6df0-40c6-a3f5-b57f848eaa5a)
